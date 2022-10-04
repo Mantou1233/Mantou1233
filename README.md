@@ -1,1 +1,1 @@
-Such destiny was not desired.
+Let me forget everything, still moonlight shines on us.
